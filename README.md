@@ -1,0 +1,1 @@
+# NotoSansCJKjp-font
